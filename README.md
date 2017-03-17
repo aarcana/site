@@ -1,0 +1,1 @@
+"Aarcana" is initially formed with a group of four Computer Science students and are working with the full efforts to meet the set goals of uplifting the society. The team primarily focuses on the sustainable development through the use of technology.
